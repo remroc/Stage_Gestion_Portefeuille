@@ -2,7 +2,7 @@
 
 August 12th,2022
 
-Co-Authors:
+Co-Authors are students at lycee Baimbridge Classe Preparatoire aux Grandes Ecoles where they meet Remi Roche who taught trading/investing class:
 
 * Jordane Angebert, prepa ECT
 * Anthony Julan, prepa MP
